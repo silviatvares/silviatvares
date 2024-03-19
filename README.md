@@ -1,4 +1,4 @@
-### Hello there!! It's Silvia here 😀👋
+### Hello there!! I'm Silvia 😀👋
 
 
 - 🔭 I’m currently doing a Master in Engineering & Data Science @ FEUP
